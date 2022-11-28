@@ -5,7 +5,7 @@
 
 ## PENTING
 
-> **Warning**: Jangan Memperjual Belikan Script Ini
+> **Warning**: Jangan Di Jual Scriptnya Anj
 
 <h1 align="center">TATSUYA - MD</h1>
 <p align="center">
